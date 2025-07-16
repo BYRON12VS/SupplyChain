@@ -280,4 +280,4 @@ For licensing inquiries, contact: legal@supplychain.com
   <strong>SupplyChain</strong> - Revolutionizing Agriculture Through Technology
   
 
-© 2024 SupplyChain Inc. All rights reserved.
+© 2025 SupplyChain Inc. All rights reserved.
